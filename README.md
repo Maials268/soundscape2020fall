@@ -1,0 +1,2 @@
+The title of this soundscape is Haunted Home.The main focus of this narrative is family moving into a new home looking to start over. 
+However, there are unanticipated residents who currently occupy the home that the family is unaware of. The story is presented from the perspective  of the family's young daughter who initially is excited to explore her new home but that excitement quickly turns to anxiousness and fear as she starts hearing mysterious sounds within her new environment.  
